@@ -1,1 +1,1 @@
-ok this is br-frif dj djjf 
+ok this is the OS i built its a bit boring (hence the name obv) and simple but i learnt a lot doin this and it was hard and time consuming . but i still had fun doin it 
